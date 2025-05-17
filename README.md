@@ -1,7 +1,14 @@
-## Hi there 👋
+## Assalamualaikum brother 😇
+
+Sedang cari kawan yang memiliki ambisius brutal, bengis dan halal.
+
+No Adult Content, No Drugs, No Alcohol, No Smoking.
+
+
+
 
 <!--
-**niq-wazowski/niq-wazowski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**niq-wazowski/niq-wazowski** is a ✨ _special_ ✨ 
 
 Here are some ideas to get you started:
 
@@ -14,3 +21,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
