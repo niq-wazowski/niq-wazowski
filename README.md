@@ -1,11 +1,8 @@
+
+
+![Niq Wazowski](assets/image/niq-header.png)
+
 ## Assalamualaikum brother 😇
-
-Sedang cari kawan yang memiliki ambisius brutal, bengis dan halal.
-
-No Adult Content, No Drugs, No Alcohol, No Smoking.
-
-
-
 
 <!--
 **niq-wazowski/niq-wazowski** is a ✨ _special_ ✨ 
